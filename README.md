@@ -24,3 +24,4 @@
 
 __キーワード：　京都大学　京大　同窓会　アラムナイ　ネットワーク　欧州　ヨーロッパ　イギリス　ロンドン　欧州洛友会__
 
+google-site-verification: googlec61a5cc34527bd01.html
