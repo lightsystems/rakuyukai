@@ -1,4 +1,7 @@
-## 京都大学　ヨーロッパ　同窓会　＝　欧州洛友会
+<meta name="google-site-verification" content="Q8kivPPKC1B4X6voC-5MNVzBnfokCwlA1hK2pRCWyE0" />
+
+## Kyoto Univ. Alumni Network in Europe／欧州洛友会
+### 京大　同窓会　ヨーロッパ
 ヨーロッパ、イギリス・ロンドンの京都大学同窓会組織についてご紹介します。
 年に数回（２月、６月、１０月ごろ）、ロンドン市内において会合が開かれています。
 
@@ -23,5 +26,3 @@
 
 
 __キーワード：　京都大学　京大　同窓会　アラムナイ　ネットワーク　欧州　ヨーロッパ　イギリス　ロンドン　欧州洛友会__
-
-google-site-verification: googlec61a5cc34527bd01.html
